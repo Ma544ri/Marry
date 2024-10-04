@@ -3,5 +3,4 @@
 - Estou estudando pelo javascript
 - e é isso.
 - 🐚 ⭐ 🐻‍❄️
-
 - ![](https://tenor.com/bIAsr.gif)
