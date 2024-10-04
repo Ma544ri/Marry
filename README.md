@@ -4,4 +4,4 @@
 - e é isso.
 - 🐚 ⭐ 🐻‍❄️
 
-- ![](https://tenor.com/bfnTW.gif)
+- ![](https://tenor.com/bIAsr.gif)
